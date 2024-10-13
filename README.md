@@ -12,7 +12,7 @@ DNI TIKTOK FREAKS!.. or just don't interact if all you say is nonsense slangs or
 We all can be stupid! (we are human) but I mean.. the people who just are rude, ignorant, make bad decisions, closed-minded, problematic.. YOU KNOW WHAT I MEAN!
 
 
-I'm obsessed with logic, learning, anything that will grow my brain! ^^
+
 
 
 
