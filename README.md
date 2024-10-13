@@ -25,5 +25,5 @@ WARNING! MY ATABOOK CONTAINS A HUGE COLORFUL GIF AS THE BACKGROUND (people may f
 ![ax](https://64.media.tumblr.com/d5f4f42b21f7ecfc020252482ca226c1/c364dfb6a6721445-c5/s250x400/4ff3318249988d30ebcf69236ba8790c55221f3c.pnj)
 ![sji](https://64.media.tumblr.com/9a885052c0b887282d7d871ac36de716/c364dfb6a6721445-89/s100x200/136b9b911f20e5ad1d569146e7be5e3236e3ad91.gifv)
 ![sk](https://64.media.tumblr.com/2a26148183672f1e457a5e6c213ce41d/ca87e2ceb2047715-a5/s250x400/caebfc71ada41ff96b8b0f6cd62835b2ddcad497.gifv)
-![dji](https://64.media.tumblr.com/f41a2ffbe70848af6b0aacc8469c32a0/672f30845d018425-58/s100x200/e64999b1ccf4507d1586194b051e494a42b51de0.gifv)
+
 
