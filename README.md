@@ -1,5 +1,4 @@
-![a](https://i.pinimg.com/originals/04/9c/e9/049ce9b7c5637b4bcff33d35bc86d2f5.gif)
-
+![a](https://i.pinimg.com/736x/eb/cd/77/ebcd7776a8ae3b6af4c0143110dc729f.jpg)
 # HAPPY H4ALLOWEEN! 
 
 *"Beware for a scareeeEeeEEe!!!"*
