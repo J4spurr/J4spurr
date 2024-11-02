@@ -6,8 +6,8 @@
 Hi its me j4sper! 
 rando online!
 
- Don't interact if all you say is nonsense slangs or if you are just plain stupid 
-We all can be stupid! (we are human) but I mean.. the people who just are rude, ignorant, make bad decisions, closed-minded, problematic.. YOU KNOW WHAT I MEAN!
+ 
+DNI to the people who just are rude, ignorant, make bad decisions, closed-minded, problematic.. YOU KNOW WHAT I MEAN!
 
 
 WARNING! MY ATABOOK CONTAINS A HUGE COLORFUL MOVING GIF AS THE BACKGROUND (people may find this annoying)
