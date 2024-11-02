@@ -1,10 +1,8 @@
 
 
 
-![a](https://i.pinimg.com/originals/2c/0f/b5/2c0fb52aaf0cedcb391e3511fa3fc1c1.gif)
 
-
-
+![b](https://i.pinimg.com/736x/2e/30/33/2e30337e7fd788d1af7111049d13b906.jpg)
 Hi its me j4sper! 
 rando online!
 
