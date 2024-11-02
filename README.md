@@ -1,7 +1,5 @@
-![a](https://i.pinimg.com/736x/eb/cd/77/ebcd7776a8ae3b6af4c0143110dc729f.jpg)
-# HAPPY H4ALLOWEEN! 
+![a](https://i.pinimg.com/originals/2c/0f/b5/2c0fb52aaf0cedcb391e3511fa3fc1c1.gif)
 
-*"Beware for a scareeeEeeEEe!!!"*
 
 
 Hi its me j4sper! 
